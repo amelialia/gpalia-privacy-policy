@@ -25,4 +25,4 @@ This Privacy Policy may be updated from time to time for any reason. The Service
 This privacy policy is effective as of 2025-11-24
 
 ## Contact Us
-If you have any questions regarding privacy while using the Application, or have questions about the practices, please contact the Service Provider via email at ameliasiew20@gmail.com.
+If you have any questions regarding privacy while using the Application, or have questions about the practices, please contact the Service Provider via email at **ameliasiew20@gmail.com**.
